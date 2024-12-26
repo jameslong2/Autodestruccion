@@ -1,17 +1,5 @@
 # Autodestruccion
 </br>
-Flujo de pensamientos sin rumbo,</br>
-por una luz guiados</br>
-en un tunel oscuro</br>
-</br></br>
-Otra vez el frio pasa,</br>
-que mi vacio cuerpo arrasa</br>
-</br></br>
-No hay sustancia que el dolor maquille,</br>
-cortados los tendondes de aquiles</br>
-y con fino equilibro,</br>
-sosteniendo un peso invisible</br>
-</br></br>
 La humanidad un rebaño,</br>
 y las almas estrellas,</br>
 la mia se da un baño en el mar,</br>
